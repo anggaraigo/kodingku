@@ -1,0 +1,2 @@
+# kodingku
+ngoding kuy
